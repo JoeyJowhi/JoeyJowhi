@@ -1,3 +1,6 @@
+#### Personality
+I consider myself to be a very introverted and shy person as well as a bit of a recluse. Although once I get to know you I tend to open up pretty quick! I'm also a little silly :3
+
 #### Interests
 I play a lot of games but I tend to gravitate toward survival games like Project Zomboid and colony sims like Rimworld. Though these examples are specific, I love many different genres! I love FPS games like ULTRAKILL, Call of Duty and *sometimes* Counterstrike and many others!
 
