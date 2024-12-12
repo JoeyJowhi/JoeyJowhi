@@ -1,4 +1,3 @@
-I’m @JoeyJowhi!
 #### Interests
 I play a lot of games but I tend to gravitate toward survival games like Project Zomboid and colony sims like Rimworld. Though these examples are specific, I love many different genres! I love FPS games like ULTRAKILL, Call of Duty and *sometimes* Counterstrike and many others!
 
