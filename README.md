@@ -13,4 +13,4 @@ Aesthetics-wise, I absolutely adore apocalyptic themes so I find myself attracte
 Oh and uhhhh my favourite colour is black!
 
 #### Learning
-I'm attending the Software Development program at Keyin College and I'm currently at the end of my first semester!
+I'm attending the Software Development program at Keyin College and I'm currently in my second semester!
