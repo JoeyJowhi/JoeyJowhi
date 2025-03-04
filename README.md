@@ -6,11 +6,11 @@ I play a lot of games but I tend to gravitate toward survival games like **Proje
 
 I LOVE music but metal music specifically, I play guitar and enjoy extreme genres such as **BDM**, **Technical Death Metal** and **Deathgrind**, I also enjoy many other genres like **Thrash** or **Doom Metal** (I LOOOOVE DOOM METAL)! Music that isn't metal is good too, like **Indie** and **Rap/Hip-Hop**! Seriously, I like so many genres - I'll probably like something at least similar to what you like! Here's a quick top 5 to help convey my tastes better.
 
-**My Top 5 Bands**
-**1. Black Sabbath** (I love Tony Iommi and literally anything he has touched, I listen to all 20 Black Sabbath albums (Including **The Devil You Know**), I listen to his solo releases, I listen to songs he's featured on including the *WhoCares* album.)
-**2. Slayer** (All albums (Yes, even **Diabolus In Musica**) and Kerry King's current band.)
-**3. Dying F...** (Censored this and the next name in case it makes anyone uncomfy.)
-**4. Cattle D...**
+**My Top 5 Bands**<br>
+**1. Black Sabbath** (I love Tony Iommi and literally anything he has touched, I listen to all 20 Black Sabbath albums (Including **The Devil You Know**), I listen to his solo releases, I listen to songs he's featured on including the *WhoCares* album.)<br>
+**2. Slayer** (All albums (Yes, even **Diabolus In Musica**) and Kerry King's current band.)<br>
+**3. Dying F...** (Censored this and the next name in case it makes anyone uncomfy.)<br>
+**4. Cattle D...**<br>
 **5. Cryptopsy**
 
 My other main interests includes movies, TV shows, anime and manga. My favourite movies are **The Shawshank Redemption**, **The Green Mile**, **Django: Unchained** and **Whiplash**. My favourite shows are **Breaking Bad**, **Better Call Saul**, **The Walking Dead**, **Game of Thrones** ~~and a sinister fifth option~~. My favourite anime and manga are **JoJo's Bizarre Adventure**, **One Piece** and **Deathnote**. I will watch/read any genre because to me, a good story is a good story!
